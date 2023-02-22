@@ -1,1 +1,1 @@
-# BaiTapIntentQL cloud
+# BaiTapIntentQL com
