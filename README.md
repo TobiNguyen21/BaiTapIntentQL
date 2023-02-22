@@ -1,1 +1,1 @@
-# BaiTapIntentQL CLOUD
+# BaiTapIntentQL ON MY COM
